@@ -1,4 +1,4 @@
-### Hi there 👋
+### Notion : https://www.notion.so/JINNY-S-HOME-045b6e1fd9754255b6a2fa0302625862
 
 <!--
 **sjkim-jinnyk/sjkim-jinnyk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
